@@ -1,0 +1,2 @@
+# IlgazBerberSalonu-privacy
+IlgazBerberSalonu-privacy
